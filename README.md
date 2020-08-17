@@ -9,7 +9,7 @@ Requirements:
 4.serial
 
 You can watch full video on youtube
-YouTube link : https://youtu.be/3C6-E59VwVo
+YouTube link : https://youtu.be/N-73bZznhDU
 
 
 
